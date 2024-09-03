@@ -1,1 +1,0 @@
-# VediYD.github.io
